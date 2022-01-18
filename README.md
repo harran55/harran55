@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### السلام عليكم 👋
+### سبحان الله العظيم ⚡ سبحان الله وبحمده 
 <!--
 **harran55/harran55** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
